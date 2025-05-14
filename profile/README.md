@@ -2,7 +2,7 @@
 
 GOM Player does so much more than your typical media software. The simple interface disguises numerous features, including codecs search, YouTube player, and subtitles. One thing it doesn’t do is manage your files well. This app is more of a browser than anything it aspires to be.
 
-## [✅✅GOM Player for Windows](https://tinyurl.com/yeymmbrt)
+## [✅✅GOM Player for Windows)(https://tinyurl.com/yeymmbrt)
 
 ## [✅✅GOM Player for Windows 2025](https://tinyurl.com/yeymmbrt)
 
